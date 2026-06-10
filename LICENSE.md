@@ -1,4 +1,4 @@
-# 
+# Código aberto Project Origin modelos. Com IA generativa e reconhecimento de imagens — otimizado para máximo desempenho.
 
 
 
